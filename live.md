@@ -1,3 +1,3 @@
-[Trip with Rocky mountainer or VIA rail, Canada](https://canadiantrainvacations.com/trips/coast-to-coast-by-rail#top)
+[Trip with Rocky Mountaineer or VIA Rail, Canada](https://canadiantrainvacations.com/trips/coast-to-coast-by-rail#top)
 <br>
-![This is an image]([https://myoctocat.com/assets/images/base-octocat.svg](https://cdn.bfldr.com/UAHFH8T4/as/qfzrro-3scpqg-5rdu70/RM_FPW_Castle_Mountain_2_NH_2016_CREDIT_Rocky_Mountaineer?auto=webp&format=webp&width=384))
+![Rocky Mountaineer](https://www.travelandleisure.com/thmb/i0VqsdzP_F8ju5vZGfSvVc_dzuM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc()/goldleaf-mountaineer-seton-lake-view-MOUNTAINEER0519-8b3c2870c57d4181a67efa61179b369b.jpg)
